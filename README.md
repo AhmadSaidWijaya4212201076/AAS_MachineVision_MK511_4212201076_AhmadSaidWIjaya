@@ -1,0 +1,1 @@
+AAS_Machine Vision_MK511_4212201076_Ahmad Said Wijaya
